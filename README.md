@@ -1,5 +1,5 @@
 # Airportrecommend
-## ✈️推荐机场
+## ✈️推荐机场排名不分先后
 
 * [稳连云](https://xn--fpzt75b.com/#/register?code=HyhQB8ou)
 * [白月光](https://www.bygcloud.com/#/register?code=vEKUNWTP)
