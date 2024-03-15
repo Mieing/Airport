@@ -6,4 +6,5 @@
 * [超级机场](https://www.cjcloud.cc/#/register?code=zF0BVtJc)
 * [魔戒](https://mojie.link/#/register?code=3N7a3Adk)
 
+## [手机卡‘流量卡’](https://sourl.cn/xD7pZ9)
 ### [Shadowrocket(小火箭)共享账号](https://github.com/Mieing/Shadowrocket.git)
